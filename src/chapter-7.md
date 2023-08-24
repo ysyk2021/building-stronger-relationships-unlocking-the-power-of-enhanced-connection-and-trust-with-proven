@@ -1,5 +1,3 @@
-Chapter 7: Managing Conflict
-============================
 
 Conflict is a normal part of any relationship, but it can be challenging to navigate. In this chapter, we'll explore strategies for managing conflict, including healthy conflict resolution, forgiveness, and moving forward. We'll also discuss the benefits of managing conflict for improving relationship strength and growth.
 

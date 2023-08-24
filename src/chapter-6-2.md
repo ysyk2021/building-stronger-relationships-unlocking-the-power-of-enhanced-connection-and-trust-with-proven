@@ -1,5 +1,3 @@
-Strategies for Trust-building, Transparency, and Vulnerability
-=========================================================================================
 
 Trust is a critical component of any strong relationship. It lays the foundation for deeper intimacy and connection, and allows us to feel safe and secure in our connections with others. In this chapter, we will explore strategies for building trust through transparency, vulnerability, and consistency.
 

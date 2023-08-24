@@ -1,5 +1,3 @@
-Nurturing Intimacy
-=================================================
 
 Intimacy is a critical component of strong relationships. In this chapter, we will discuss the importance of nurturing intimacy and how to do so in your own relationship.
 

@@ -1,5 +1,3 @@
-Identifying Communication Styles
-=============================================================================
 
 Effective communication is a critical component of building strong relationships. However, people often have different communication styles that can lead to misunderstandings and conflicts. In this chapter, we will explore strategies for identifying communication styles.
 

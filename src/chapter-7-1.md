@@ -1,5 +1,3 @@
-Strategies for Effectively Managing Conflict in Relationships
-===========================================================================================
 
 Conflict is a natural part of any relationship, but how we manage and resolve conflicts can make a significant difference in the strength of our relationships. In this chapter, we will explore strategies for effectively managing conflict in relationships.
 

@@ -1,5 +1,3 @@
-The Benefits of Developing Emotional Intelligence for Improved Communication and Conflict Resolution
-==================================================================================================================================================
 
 Emotional intelligence is the ability to recognize, understand, and manage our own emotions, as well as recognize and influence the emotions of others. In this chapter, we will explore the benefits of developing emotional intelligence for improved communication and conflict resolution in relationships.
 

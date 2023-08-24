@@ -1,5 +1,3 @@
-Chapter 4: Enhancing Listening Skills
-=====================================
 
 Listening is a critical skill in building strong relationships. In this chapter, we'll explore strategies for enhancing listening skills, including active listening, empathy, and validation. We'll also discuss the benefits of improving listening skills for building better connections and trust.
 

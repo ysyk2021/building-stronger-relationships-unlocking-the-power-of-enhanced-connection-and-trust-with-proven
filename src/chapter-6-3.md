@@ -1,5 +1,3 @@
-The Benefits of Building Trust for Improved Relationship Quality and Resilience
-==========================================================================================================
 
 Trust is a critical component of strong relationships. When we trust someone, we feel secure, respected, and valued, which can enhance relationship quality and resilience. In this chapter, we will explore the importance of building trust and the benefits it can offer to our relationships.
 

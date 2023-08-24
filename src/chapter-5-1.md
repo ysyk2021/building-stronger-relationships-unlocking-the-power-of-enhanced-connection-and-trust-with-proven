@@ -1,5 +1,3 @@
-Developing Emotional Intelligence
-============================================
 
 Emotional intelligence is an essential component of building strong, healthy relationships. In this chapter, we will explore strategies for developing emotional intelligence in four key areas: self-awareness, self-management, social awareness, and relationship management.
 

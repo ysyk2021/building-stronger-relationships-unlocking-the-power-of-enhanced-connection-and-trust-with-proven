@@ -1,5 +1,3 @@
-Strategies for Healthy Conflict Resolution, Forgiveness, and Moving Forward
-=========================================================================================================
 
 Conflict is a natural part of any relationship, but it can also be a source of tension and stress. In this chapter, we will explore strategies for managing conflict in healthy and productive ways. This includes developing skills for conflict resolution, forgiveness, and moving forward.
 

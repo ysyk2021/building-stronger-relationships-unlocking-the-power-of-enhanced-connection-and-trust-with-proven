@@ -1,5 +1,3 @@
-Chapter 3: Identifying Communication Styles
-===========================================
 
 Effective communication is crucial for building stronger relationships. Understanding and recognizing different communication styles can help individuals develop positive patterns of communication. Here are some strategies for identifying communication styles:
 

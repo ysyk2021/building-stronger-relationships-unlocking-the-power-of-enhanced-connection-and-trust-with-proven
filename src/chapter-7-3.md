@@ -1,5 +1,3 @@
-The Benefits of Managing Conflict for Improved Relationship Strength and Growth
-=============================================================================================================
 
 Conflict is an inevitable part of any relationship, but managing conflict effectively can lead to improved relationship strength and growth. In this chapter, we will explore the benefits of conflict management and provide strategies for resolving conflicts.
 

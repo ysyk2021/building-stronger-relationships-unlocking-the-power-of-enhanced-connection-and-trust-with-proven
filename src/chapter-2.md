@@ -1,5 +1,3 @@
-Chapter 2: Examining the Science of Relationships
-=================================================
 
 In this chapter, we will explore the science behind human relationships. By examining the nature of human connection and attachment, we can gain a better understanding of how our relationships are formed and maintained.
 

@@ -1,5 +1,3 @@
-Strategies for Active Listening, Empathy, and Validation
-===============================================================================================
 
 In this chapter, we will explore strategies for enhancing listening skills in relationships. Active listening, empathy, and validation are essential components of effective communication and building trust.
 

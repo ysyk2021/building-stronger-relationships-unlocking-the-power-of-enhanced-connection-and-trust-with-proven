@@ -1,5 +1,3 @@
-Strategies for Increasing Self-Awareness, Self-Management, Social Awareness, and Relationship Management
-======================================================================================================================================================
 
 Emotional intelligence is the ability to recognize, understand, and manage our own emotions, as well as recognize and influence the emotions of others. In this chapter, we will explore strategies for developing emotional intelligence in four key areas: self-awareness, self-management, social awareness, and relationship management.
 

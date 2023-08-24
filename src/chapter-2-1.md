@@ -1,5 +1,3 @@
-Examining the Science of Relationships
-=========================================================================================
 
 In this chapter, we will explore the science behind building strong relationships. Over the years, researchers have delved into what makes relationships successful and resilient, discovering various factors that contribute to an enhanced sense of connection and trust.
 

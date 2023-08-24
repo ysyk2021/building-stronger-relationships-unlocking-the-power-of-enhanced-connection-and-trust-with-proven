@@ -1,5 +1,3 @@
-Strategies for Connecting on a Deeper Level, Cultivating Romance, and Fostering Intimacy
-=======================================================================================================================
 
 Intimacy is a critical component of strong relationships. In this chapter, we will discuss strategies for connecting on a deeper level, cultivating romance, and fostering intimacy.
 

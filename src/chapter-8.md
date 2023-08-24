@@ -1,5 +1,3 @@
-Chapter 8: Nurturing Intimacy
-=============================
 
 In this chapter, we will explore strategies for nurturing intimacy in relationships. Building and maintaining intimacy is essential in enhancing connection and trust in relationships.
 

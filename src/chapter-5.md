@@ -1,5 +1,3 @@
-Chapter 5: Developing Emotional Intelligence
-============================================
 
 Emotional intelligence is an essential skill for building stronger relationships. In this chapter, we'll explore strategies for increasing emotional intelligence, how it can improve communication and conflict resolution, and the many benefits of developing emotional intelligence.
 

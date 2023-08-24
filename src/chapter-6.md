@@ -1,5 +1,3 @@
-Chapter 6: Building Trust
-=========================
 
 Trust is a critical component of strong relationships. In this chapter, we'll explore strategies for building trust, including trust-building techniques, transparency, and vulnerability. We'll also discuss the benefits of building trust for improving relationship quality and resilience.
 

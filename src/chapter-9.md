@@ -1,5 +1,3 @@
-Chapter 9: Creating Shared Experiences
-======================================
 
 Shared experiences can be a powerful way to deepen connections and build stronger relationships. In this chapter, we'll explore strategies for creating shared experiences, including building memories, growing together, and creating meaningful moments. We'll also discuss the benefits of creating shared experiences for improving relationship bonding and connection.
 

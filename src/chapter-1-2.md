@@ -1,5 +1,3 @@
-Connection, Trust, and Communication
-====================================================================================
 
 To build strong relationships, we must first understand the key concepts that underlie them. In this chapter, we will define and explore the concepts of connection, trust, and communication.
 

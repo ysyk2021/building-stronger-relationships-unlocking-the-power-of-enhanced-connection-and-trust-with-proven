@@ -1,5 +1,3 @@
-The Benefits of Examining the Science of Relationships for Improved Self-Awareness and Understanding
-=======================================================================================================================================================
 
 In addition to understanding how relationships work, examining the science of relationships can also provide benefits for improved self-awareness and understanding. In this chapter, we will explore how a deeper understanding of relationships can help us better understand ourselves and our own patterns of behavior.
 
