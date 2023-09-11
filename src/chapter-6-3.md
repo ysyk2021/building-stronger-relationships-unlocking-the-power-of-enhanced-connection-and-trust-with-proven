@@ -1,5 +1,4 @@
-Chapter: The Benefits of Building Trust for Improved Relationship Quality and Resilience
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Trust forms the bedrock of any successful relationship, contributing significantly to its quality and resilience. This chapter explores the multifaceted benefits of building trust and how it enhances relationship dynamics, fostering deeper connections and increased resilience.
 

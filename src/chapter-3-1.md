@@ -1,5 +1,4 @@
-Chapter: Identifying Communication Styles
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to building stronger relationships and unlocking the power of enhanced connection and trust, understanding and recognizing different communication styles is crucial. This chapter delves into the various communication styles that individuals may exhibit and offers insights into how identifying these styles can lead to more effective communication and relationship building.
 

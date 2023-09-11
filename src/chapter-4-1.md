@@ -1,5 +1,4 @@
-Chapter: Enhancing Listening Skills
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective listening is a cornerstone of building stronger relationships and fostering meaningful connections. This chapter delves into proven techniques for enhancing your listening skills, enabling you to create deeper understanding, empathy, and trust in your interactions.
 

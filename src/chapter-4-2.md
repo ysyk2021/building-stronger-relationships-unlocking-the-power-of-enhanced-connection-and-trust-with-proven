@@ -1,5 +1,4 @@
-Chapter: Strategies for Active Listening, Empathy, and Validation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication lies at the heart of building stronger relationships through enhanced connection and trust. This chapter delves into essential strategies for mastering active listening, empathy, and validation, key components that contribute to meaningful interactions and deeper bonds.
 

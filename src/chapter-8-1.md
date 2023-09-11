@@ -1,5 +1,4 @@
-Chapter: Nurturing Intimacy
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of building stronger relationships and unlocking the power of enhanced connection and trust, the chapter on nurturing intimacy takes center stage. Intimacy forms the bedrock of meaningful relationships, and this chapter delves into the techniques, practices, and insights that enable individuals to foster and sustain intimacy in their partnerships.
 

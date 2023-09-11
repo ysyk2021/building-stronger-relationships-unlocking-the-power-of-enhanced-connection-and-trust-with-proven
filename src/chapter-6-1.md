@@ -1,5 +1,4 @@
-Chapter: Building Trust
-=======================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Trust is the cornerstone of any meaningful and lasting relationship. This chapter delves into the art of building trust, outlining proven techniques that lay the foundation for strong connections and enduring bonds.
 

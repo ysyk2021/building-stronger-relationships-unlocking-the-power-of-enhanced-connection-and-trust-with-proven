@@ -1,5 +1,4 @@
-Chapter: Creating Shared Experiences
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of building stronger relationships and unlocking the power of enhanced connection and trust, the chapter on creating shared experiences takes center stage. This chapter explores the significance of shared activities, memories, and moments in nurturing bonds and fostering a deeper sense of connection between individuals.
 

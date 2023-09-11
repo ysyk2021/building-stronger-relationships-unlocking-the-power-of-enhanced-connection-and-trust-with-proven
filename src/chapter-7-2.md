@@ -1,5 +1,4 @@
-Chapter: Strategies for Healthy Conflict Resolution, Forgiveness, and Moving Forward
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of building stronger relationships and unlocking the power of enhanced connection and trust, the ability to navigate conflicts, practice forgiveness, and move forward is paramount. This chapter delves into proven strategies for engaging in healthy conflict resolution, embracing forgiveness, and charting a path towards growth and reconciliation.
 

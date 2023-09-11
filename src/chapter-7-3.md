@@ -1,5 +1,4 @@
-Chapter: The Benefits of Managing Conflict for Improved Relationship Strength and Growth
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of building stronger relationships and unlocking the power of enhanced connection and trust, the skill of effectively managing conflict emerges as a cornerstone. This chapter delves into the numerous advantages of mastering conflict management, highlighting how it contributes to relationship strength, growth, and the cultivation of lasting connections.
 

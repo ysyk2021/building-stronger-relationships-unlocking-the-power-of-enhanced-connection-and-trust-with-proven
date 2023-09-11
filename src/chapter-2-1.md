@@ -1,5 +1,4 @@
-Chapter: Examining the Science of Relationships
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to build stronger relationships and unlock the power of enhanced connection and trust, it is valuable to explore the scientific underpinnings of human relationships. This chapter delves into the fascinating world of relationship science, shedding light on the mechanisms, psychology, and biology that shape the way we connect and trust.
 
